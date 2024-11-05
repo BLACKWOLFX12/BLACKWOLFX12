@@ -1,3 +1,4 @@
+![1000000599](https://github.com/user-attachments/assets/7384e942-73b9-444e-abf5-7317689919b2)
 ![1000006774](https://github.com/user-attachments/assets/2ce7c049-1c7c-4066-a081-97bae6b23569)
 - 👋 Hi, I’m @BLACKWOLFX12
 - 👀 I’m interested in ...
